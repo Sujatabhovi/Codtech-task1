@@ -6,7 +6,7 @@ Duration:October to November
 Mentor:SANTHOSH NEELA
 
 Overview of Project
-"C:\Users\ASUS\Downloads\WhatsApp Image 2024-10-30 at 9.51.17 AM.jpeg"
+
 
 
 
